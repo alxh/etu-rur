@@ -1,4 +1,4 @@
-# [fr] Histoire de la revue "Études rurales"
+# Histoire de la revue "Études rurales"
 
 ## Un exercice d'histoire des sciences sociales
 
